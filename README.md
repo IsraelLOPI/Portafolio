@@ -13,4 +13,5 @@
 
 ###Israel Lopez 
 
-las Fotos sera cambiadas tan pronto como me tome alguna foto decente
+Las fotos sera cambiadas tan pronto como me tome alguna foto decente
+El unico enlace que funciona el es de github, no tengo cuentas de redes sociales profecionales
